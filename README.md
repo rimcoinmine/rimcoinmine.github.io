@@ -1,0 +1,1 @@
+# rimcoinmine.github.io
